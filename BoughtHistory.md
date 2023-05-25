@@ -13,15 +13,18 @@ https://amzn.to/3q27mZs Silicon use in my experiment project. Easy and works wel
 ![image](https://github.com/EloiStree/AmazonAssociateLinks/assets/20149493/51246945-ae31-4dab-a253-af9281ca5801)
 https://amzn.to/45yfqBM I am using them to command my light and to konw what my computer and CNC/Printer consume for projects.
 
-![image](https://github.com/EloiStree/AmazonAssociateLinks/assets/20149493/24e9f2d1-3e4b-4dde-9351-343a2af84542)
-This PLA is conductive, around 2kohm for 3 cm  making it "perfect" for my testes.
+![image](https://github.com/EloiStree/AmazonAssociateLinks/assets/20149493/24e9f2d1-3e4b-4dde-9351-343a2af84542) 
 https://amzn.to/3MVtOwx
+This PLA is conductive, around 2kohm for 3 cm  making it "perfect" for my testes.
+
 
 ![image](https://github.com/EloiStree/AmazonAssociateLinks/assets/20149493/228b6c9c-38a4-41db-882b-f91ea37a31a9)
-https://amzn.to/3oyNJb2 The arcade button I use for my projects 
+https://amzn.to/3oyNJb2 
+The arcade button I use for my projects 
 
 ![image](https://github.com/EloiStree/AmazonAssociateLinks/assets/20149493/710d96e4-95ab-4a7d-8349-5385f9fd1e3e)
-https://amzn.to/43sB1cD  As VR developer it is important to protect your eyees and that why I have those.
+https://amzn.to/43sB1cD 
+As VR developer it is important to protect your eyees and that why I have those.
 
 [![image](https://github.com/EloiStree/AmazonAssociateLinks/assets/20149493/ad3a01db-32c4-4e58-9d1f-dcbc5572f811)](https://amzn.to/3qgQD4E)
 https://amzn.to/3qgQD4E
